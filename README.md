@@ -1,4 +1,4 @@
-**README.md** file for your **Decentralized Payroll System**:  
+**README.md** file for  **Decentralized Payroll System**:  
 
 ---
 
