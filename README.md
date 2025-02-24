@@ -102,6 +102,6 @@ This project is licensed under the **MIT License**.
 ---
 
 ## **🚀 Let's Build the Future of Payroll!**  
-📢 **Would you trust blockchain for payroll?** Let’s discuss in the comments! 👇  
+📢 **Would you trust blockchain for payroll?** Let’s discuss !! reach out me - harshitha112m@gmail.com
 
 🔗 #Blockchain #Payroll #Web3 #Crypto #SmartContracts #Ethereum #Fintech 🚀
